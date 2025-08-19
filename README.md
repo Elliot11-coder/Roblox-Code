@@ -1,2 +1,1 @@
-# Roblox-Code
-My roblox code
+THIS NEWBIE CODE. DONT USE IT IN YOUR OWN GAME!!!!
